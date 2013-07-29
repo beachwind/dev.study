@@ -78,6 +78,3 @@
 이재경 | skullee84@gmail.com |
 
 황인성 | DemianHwang@gmail.com |
-
-유경록|hi.raphael@gmail.com|
-
